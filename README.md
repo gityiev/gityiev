@@ -26,11 +26,9 @@
    
    $${\color{#5C5470}ᕳ♡ᕲ}$$
     
-   $${\color{#807796}VA/AMATEUR\space ARTIST,\space I'on\space give\space my\space socials\space unless\space you\space ask\space for\space 'em\space on\space 𝑑𝑐.}$$
+   $${\color{#807796}CH/HTHALBY\space HYAPZA,\space P'vu\space npcl\space tf\space zvjphsz\space buslzz\space fvb\space hzr\space  mvy\space 'lt\space vu\space kj.}$$
    
-   $${\color{#5b4a85}(Note:\space Using\space terms\space of\space endearment\space (e.g.,\space babe\space or\space love)\space in\space a\space 𝑪𝑶𝑴𝑷𝑳𝑬𝑻𝑬𝑳𝒀\space 𝑷𝑳𝑨𝑻𝑶𝑵𝑰𝑪\space manner\space is\space a\space habit\space of\space mine,\space so\space please\space tell\space me\space if\space that\space makes\space you\space uncomfortable\space before\space interacting.)}$$
-
-   $${\color{#351f69}Not\space very\space many\space DNI's,\space just\space 𝐃𝐎𝐍'𝐓\space 𝐁𝐄\space a\space 𝑫𝑰𝑺𝑮𝑼𝑺𝑻𝑰𝑵𝑮\space loser\space thanks.}$$ </details>
+   $${\color{#351f69}Uva\space clyf\space thuf\space KUP'z,\space qbza\space KVU'A\space IL\space h\space KPZNBZAPUN\space svzly\space aohurz.}$$ </details>
 </div> 
 
 &nbsp;
