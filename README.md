@@ -38,9 +38,9 @@
  
 <p align="center">
   <picture>
-    <source media="(prefers-color-scheme: dark)" srcset="https://github.com/user-attachments/assets/2fe7c199-dcd2-4b75-8aec-2d9c3aa0aeb9">
-    <source media="(prefers-color-scheme: light)" srcset="https://github.com/user-attachments/assets/2fe7c199-dcd2-4b75-8aec-2d9c3aa0aeb9">
-   <img width="60%" height="60%" alt="Untitled284_20260727173017_edit_106568121869154" src="https://github.com/user-attachments/assets/2fe7c199-dcd2-4b75-8aec-2d9c3aa0aeb9" />
+    <source media="(prefers-color-scheme: dark)" srcset="https://github.com/user-attachments/assets/7d91bd5d-cd3a-4b25-8a54-beb0977d6c37">
+    <source media="(prefers-color-scheme: light)" srcset="https://github.com/user-attachments/assets/7d91bd5d-cd3a-4b25-8a54-beb0977d6c37">
+   <img width="60%" height="60%" alt="Untitled284_20260727173017_edit_106568121869154" src="https://github.com/user-attachments/assets/7d91bd5d-cd3a-4b25-8a54-beb0977d6c37" />
   </picture>
 </p>
 
