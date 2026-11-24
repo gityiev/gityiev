@@ -18,7 +18,7 @@
  
 <div align=center>
   <details> 
-    <summary style="color: "#736f6f">$${\color{#ffffff}𝘿𝙀𝘾𝙊𝘿𝙀\space 𝙈𝙀\space ...}$$
+    <summary style="color: "#736f6f">$${\color{#736f6f}𝘿𝙀𝘾𝙊𝘿𝙀\space 𝙈𝙀\space ...}$$
       <img src="https://github.com/user-attachments/assets/652c8921-89d7-4e46-b031-252575e9e463" alt="Click to expand" width="100">
   </summary> 
 
