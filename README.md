@@ -22,9 +22,9 @@
       <img src="https://github.com/user-attachments/assets/652c8921-89d7-4e46-b031-252575e9e463" alt="Click to expand" width="100">
   </summary> 
 
-   $${\color{#141414}—}$$
+   $${\color{#141414}github.com/szymor/anarch}$$
    
-   $${\color{#141414}ᕳ♡ᕲ}$$
+   $${\color{#4d4d4d}ᕳ♡ᕲ}$$
     
    $${\color{#c4c4c4}CH/HTHALBY\space HYAPZA,\space P'vu\space npcl\space tf\space zvjphsz\space buslzz\space fvb\space hzr\space  mvy\space 'lt\space vu\space kj.}$$
    
