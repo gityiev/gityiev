@@ -18,7 +18,7 @@
  
 <div align=center>
   <details> 
-    <summary style="color: "#5c2461">$${\color{#ffffff}𝕮𝖑𝖎𝖈𝖐\space 𝖒𝖊\space 𝖋𝖔𝖗\space 𝖘𝖔𝖒𝖊\space 𝖎𝖓𝖋𝖔𝖗𝖒𝖆𝖙𝖎𝖔𝖓\space ...}$$
+    <summary style="color: "#5c2461">$${\color{#ffffff}𝘿𝙀𝘾𝙊𝘿𝙀\space 𝙈𝙀\space ...}$$
       <img src="https://github.com/user-attachments/assets/652c8921-89d7-4e46-b031-252575e9e463" alt="Click to expand" width="100">
   </summary> 
 
@@ -28,7 +28,7 @@
     
    $${\color{#ffffff}CH/HTHALBY\space HYAPZA,\space P'vu\space npcl\space tf\space zvjphsz\space buslzz\space fvb\space hzr\space  mvy\space 'lt\space vu\space kj.}$$
    
-   $${\color{#351f69}Uva\space clyf\space thuf\space KUP'z,\space qbza\space KVU'A\space IL\space h\space KPZNBZAPUN\space svzly\space aohurz.}$$ </details>
+   $${\color{#ffffff}Uva\space clyf\space thuf\space KUP'z,\space qbza\space KVU'A\space IL\space h\space KPZNBZAPUN\space svzly\space aohurz.}$$ </details>
 </div> 
 
 &nbsp;
