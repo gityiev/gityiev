@@ -26,9 +26,12 @@
    
    $${\color{#4d4d4d}ᕳ♡ᕲ}$$
     
-   $${\color{#c4c4c4}CH/HTHALBY\space HYAPZA,\space P'vu\space npcl\space tf\space zvjphsz\space buslzz\space fvb\space hzr\space  mvy\space 'lt\space vu\space kj.}$$
+   $${\color{#c4c4c4}rcb'h\space ush\space ovsor\space ct\space mcifgszt,\space hvwg\space kogb'h\space hvs\space gsqfsh,\space pih\space mci'fs\space qsfhowbzm\space aiqv\space qzcgsf\space hvob\space mci\space hvwby.}$$
    
-   $${\color{#c4c4c4}Uva\space clyf\space thuf\space KUP'z,\space qbza\space KVU'A\space IL\space h\space KPZNBZAPUN\space svzly\space aohurz.}$$ </details>
+   $${\color{#c4c4c4}hvwg\space oqqcibh\space wg\space o\space tfcbh,\space bch\space am\space aowb,\space rcb'h\space sldsqh\space hc\space twbr\space obm\space fszsjobh\space gqfwdhg\space vsfs.}$$
+
+   $${\color{#c4c4c4}bnunlc\space nenahcqrwp.}$$ </details>
+
 </div> 
 
 &nbsp;
